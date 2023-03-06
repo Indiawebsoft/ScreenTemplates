@@ -1,1 +1,11 @@
 
+![Screenshot_20221215_174948](https://user-images.githubusercontent.com/87691877/223031988-f3e55317-c9d2-40dd-a570-fef020a70ad1.png)
+![Screenshot_20221215_175011](https://user-images.githubusercontent.com/87691877/223031993-c39643a1-5476-4c22-946b-2d46adf8c522.png)
+![Screenshot_20221215_175025](https://user-images.githubusercontent.com/87691877/223031996-7f1cf281-a96e-48ba-be8d-7545f952773f.png)
+![Screenshot_20221215_175109](https://user-images.githubusercontent.com/87691877/223032000-fbbc7e38-822d-466c-a85b-d79053cc5f64.png)
+![Screenshot_20221215_175120](https://user-images.githubusercontent.com/87691877/223032005-85b9e47e-1888-4c09-b41a-86e0babe2d60.png)
+![Screenshot_20221215_175221](https://user-images.githubusercontent.com/87691877/223032008-e4d568c4-c4b8-4521-830b-8592abe72605.png)
+![Screenshot_20221215_175409](https://user-images.githubusercontent.com/87691877/223032011-3e7ab7c3-9a00-46b0-9da6-a429c137d677.png)
+![Grocery Shopping Store - GROWEAZE](https://user-images.githubusercontent.com/87691877/223031974-4925ff64-b2ae-4423-87fb-654131ad8efc.png)
+![grow_logo](https://user-images.githubusercontent.com/87691877/223031981-9592527c-d67b-421f-9cdc-1da1ab33bd82.png)
+![grow_logo_512x512](https://user-images.githubusercontent.com/87691877/223031985-bca27866-74d6-4003-a33d-6ee35586c6a3.png)
